@@ -1,7 +1,7 @@
 ---
 title: "Transfert De Vidéos Youtube Vers iMovie: Techniques Rapides Et Efficaces Pour Un Montage Parfait"
-date: 2024-10-22T08:40:49.579Z
-updated: 2024-10-22T22:10:52.798Z
+date: 2024-11-02T20:26:23.497Z
+updated: 2024-11-03T18:59:52.835Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/ef69c6cfc05813b51fd415fbeca882846dc473b99199e876bd020898984fe0d1.png
@@ -46,24 +46,10 @@ Les différentes listes de support des formats vidéo ne signifient jamais un é
 
 [Télécharger](https://tools.techidaily.com/macxdvd/products/) [Télécharger](https://tools.techidaily.com/macxdvd/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Table des matières
 
 * [Télécharger des vidéos YouTube pour le montage dans iMovie](https://tools.techidaily.com/macxdvd/products/)
 * [Convertir et importer des vidéos YouTube dans iMovie](https://tools.techidaily.com/macxdvd/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Comment télécharger des vidéos YouTube pour les éditer dans iMovie?
 
@@ -88,10 +74,17 @@ Cliquez sur Télécharger maintenant en bas pour commencer à télécharger les 
 ![download YouTube videos on iMovie](https://www.macxdvd.com/tutorial-fr/../mac-dvd-video-converter-how-to/article-image/mac-youtube-to-mp3-downloader.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Convertir les vidéos YouTube aux formats d'iMovie pour le montage
@@ -112,6 +105,13 @@ Formats audio pris en charge par iMovie : AAC, AIFF, BWF, CAF, MP3, RF64, WAV.
 
 ![MacX Video Converter Pro](https://www.macxdvd.com/tutorial-fr/../mac-dvd-video-converter-how-to/article-image/mvcp-liuli-071602.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Étape 3:** Sélectionnez le dossier de sortie
 
 Cliquez sur "Parcourir" pour choisir le chemin dans lequel vous voulez enregistrer les fichiers de sortie.
@@ -126,16 +126,22 @@ Articles associés:
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic7.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [\[Résolu\] Impossible de lire les vidéos MKV HEVC/H.265 sur macOS](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Comment convertir gratuitement MKV en QuickTime MOV sur macOS](https://tools.techidaily.com/macxdvd/products/) 
 
@@ -146,10 +152,10 @@ Articles associés:
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Comment résoudre le problème de MKV ne jouant pas sur VLC sur macOS](https://tools.techidaily.com/macxdvd/products/) 
@@ -159,6 +165,13 @@ Articles associés:
 [Comment convertir gratuitement MKV en AVI sur Mac](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Vous ne pouvez pas convertir librement MKV en MP4 avec VLC ? Voici les correctifs](https://tools.techidaily.com/macxdvd/products/) 
 
@@ -177,13 +190,6 @@ Digiarty Software, Inc. (MacXDVD) est un leader dans la fourniture d'application
 * [FAQ >>](https://tools.techidaily.com/macxdvd/products/)
 * [Guide >>](https://tools.techidaily.com/macxdvd/products/)
 * [Solutions >>](https://tools.techidaily.com/macxdvd/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Contact
 
@@ -212,24 +218,21 @@ Les logiciels d'Digiarty ne sont pas développés par Apple Inc ni affilié à l
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-pro-video-setup-choose-from-our-list-of-best-5-webcams-and-mics/"><u>[New] 2024 Approved Pro Video Setup Choose From Our List of Best 5 Webcams & Mics</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-combining-camera-and-display-in-one-go-for-2024/"><u>[New] Combining Camera and Display in One Go for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-step-by-step-adding-a-flurry-of-images-and-videos-to-your-ig-story/"><u>[New] Step-by-Step Adding a Flurry of Images & Videos to Your IG Story</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlocking-value-for-vendors-and-viewers-through-youtuber-sponsorship/"><u>[Updated] Unlocking Value for Vendors and Viewers Through YouTuber Sponsorship</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1-official-update-the-latest-macx-video-converter-pro-2022-license-key-now-available/"><u>1. [OFFICIAL UPDATE] The Latest MacX Video Converter Pro 2022 License Key - Now Available!</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/1-step-by-step-guide-converting-and-sharing-your-avchd-mts-videos-on-youtube/"><u>1. Step-by-Step Guide: Converting and Sharing Your AVCHD MTS Videos on YouTube</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/4k-720p1080p/"><u>免費提供的最好4K影片转换工具 - 可高清转720P/1080P和相反</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/ace-your-window-11-search-game-essential-tips-to-know/"><u>Ace Your Window 11 Search Game: Essential Tips to Know</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/av1-contra-hevc-es-av1-una-superioridad-en-la-codificacion-de-video-para-nuevos-tiempos/"><u>AV1 Contra HEVC: ¿Es AV1 Una Superioridad en La Codificación De Vídeo Para Nuevos Tiempos?</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/comprehensive-comparison-of-winx-dvd-ripper-and-handbrake-the-ultimate-free-dvd-ripping-showdown/"><u>Comprehensive Comparison of WinX DVD Ripper & Handbrake: The Ultimate Free DVD Ripping Showdown</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/craft-visuals-with-ease-essential-techniques-for-generating-images-using-midjourney/"><u>Craft Visuals with Ease: Essential Techniques for Generating Images Using Midjourney</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-enjoy-the-new-product-launches-with-samsungs-live-stream/"><u>How to Enjoy the New Product Launches with Samsung's Live Stream</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/how-to-use-winx-mediatrans-the-preferred-solution-for-effortlessly-moving-your-media-from-ios-devices-to-a-pc/"><u>How to Use WinX MediaTrans: The Preferred Solution for Effortlessly Moving Your Media From iOS Devices to a PC</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-zte-nubia-z60-ultra-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How ZTE Nubia Z60 Ultra Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/la-selection-ultime-les-logiciels-de-montage-video-gratuits-pour-fichiers-mp4-parfaitement-optimises-seo/"><u>La Sélection Ultime : Les Logiciels De Montage Vidéo Gratuits Pour Fichiers MP4 Parfaitement Optimisés SEO</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/step-by-step-guide-transferring-dvd-content-from-pcmac-to-usb/"><u>Step-by-Step Guide: Transferring DVD Content From PC/Mac to USB</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/top-10-metodi-per-dimensionare-i-tuoi-video-senza-compromettere-la-qualita-nessun-watermark/"><u>Top 10 Metodi Per Dimensionare I Tuoi Video Senza Compromettere La Qualità: Nessun Watermark</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/and/"><u>エキスパート・ガイド 年末大掃除完全マニュアル：計画表&必需品チェックリストをご用意！</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-discover-and-download-christian-music-for-ringtone-use/"><u>[Updated] 2024 Approved Discover & Download Christian Music for Ringtone Use</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-gaining-exposure-cost-effective-promotion-hacks-for-youtubers/"><u>[Updated] Gaining Exposure Cost-Effective Promotion Hacks for YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-off-right-must-haves-for-youtube-enthusiasts/"><u>[Updated] Starting Off Right Must-Haves for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-tailored-insights-setting-up-your-personalbusiness-yt-channel-mobilely/"><u>2024 Approved Tailored Insights Setting Up Your Personal/Business YT Channel Mobilely</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/conquering-terrain-with-the-colossal-galaxy-ford-f-150-rc-a-review-of-an-automotive-marvel/"><u>Conquering Terrain with the Colossal Galaxy Ford F-150 R/C - A Review of an Automotive Marvel</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/effortless-movies-on-the-go-transferring-dvd-content-for-streaming-on-an-iphoneipad/"><u>Effortless Movies on the Go: Transferring DVD Content for Streaming on an iPhone/iPad</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/free-download-of-macx-video-converter-pro-join-the-spring-excitement-with-macxdvds-gift-campaign/"><u>Free Download of MacX Video Converter Pro - Join the Spring Excitement with MacXDVD's Gift Campaign</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/guide-transforming-avi-files-into-hevc-format-for-seamless-use-on-ios-devices-and-apple-software/"><u>Guide: Transforming AVI Files Into HEVC Format for Seamless Use on iOS Devices and Apple Software</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-vivo-y200e-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Vivo Y200e 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/in-depth-analysis-of-macx-hd-for-windows-popularity-advantages-security-and-how-to-use-it-effectively/"><u>In-Depth Analysis of MacX HD for Windows: Popularity, Advantages, Security & How to Use It Effectively</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/next-level-video-editing-the-ultimate-guide-to-cool-effects-for-2024/"><u>Next-Level Video Editing The Ultimate Guide to Cool Effects for 2024</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/region-free-solutions-watching-us-dvds-in-the-uk-and-beyond/"><u>Region Free Solutions: Watching US DVDs in the UK and Beyond</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-issue-bsod-related-rtwlanesys-system-failure-fix/"><u>Resolved Issue: BSOD Related 'rtwlane.sys' System Failure Fix</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/step-by-step-tutorial-downloading-4k-and-hd-youtube-videos-without-cost-on-mac-devices/"><u>Step-by-Step Tutorial: Downloading 4K and HD YouTube Videos Without Cost on Mac Devices</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/the-essential-picks-for-a-perfect-transition-leading-hd-to-4k-video-converters-reviewed-and-compared/"><u>The Essential Picks for a Perfect Transition: Leading HD to 4K Video Converters Reviewed and Compared</u></a></li>
 </ul></div>
 
