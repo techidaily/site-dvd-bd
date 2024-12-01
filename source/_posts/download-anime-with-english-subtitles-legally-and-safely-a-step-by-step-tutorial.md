@@ -1,7 +1,7 @@
 ---
 title: Download Anime With English Subtitles Legally and Safely – A Step-by-Step Tutorial
-date: 2024-11-17T00:56:45.667Z
-updated: 2024-11-23T07:35:05.581Z
+date: 2024-11-28T23:23:53.612Z
+updated: 2024-11-30T18:22:05.821Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe2881674
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon7.png) [Home](https://tools.techidaily.com/macxdvd/products/) \> [Online Video](https://tools.techidaily.com/macxdvd/products/) \> [General Movies](https://tools.techidaily.com/macxdvd/products/) \> Download Anime Free
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anime Download: Download Dubbed Anime Free with English Sub
 
 _Summary: follow this article to get the best way to free download dubbed Anime with English subtitle._
@@ -29,18 +33,22 @@ _Summary: follow this article to get the best way to free download dubbed Anime 
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-email.jpg)](https://www.macxdvd.com/mac-dvd-video-converter-how-to/mailto:info@example.com?&subject=&body=https://www.macxdvd.com/mac-dvd-video-converter-how-to/download-anime-free-with-english-sub.htm)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in.jpg)](https://www.linkedin.com/shareArticle?mini=true&url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/download-anime-free-with-english-sub.htm&title=&summary=https://www.macxdvd.com/mac-dvd-video-converter-how-to/download-anime-free-with-english-sub.htm&source=)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Can't erase the memory of Spirited Away? Longing for watching more   **Japanese anime series** ? Haven't found where to watch free anime with English subtitles offline? No biggie! Here I will show you how to download anime MP4, HD with an all-tackle [anime movie downloader](https://tools.techidaily.com/macxdvd/products/). 
 
 To hassle-free download HD MP4 anime movies from the best anime websites like Hulu, YouTube, Crunchyroll, veoh, and more, what you need is the all-conquering [**MacX Video Converter Pro**](https://tools.techidaily.com/macxdvd/products/), which can aid you to download any anime from Crunchyroll, YouTube, Anime44, KissAnime, Hulu, Myvideo, etc. with over 1000 video audio sharing sites supported. So needless to look around, this free yet all-inclusive anime movie/episode downloader can address all your demands. 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Download Animes with English Subtitles - 100% Free
 
@@ -49,7 +57,7 @@ MacX Video Converter Pro, a safe-bet anime dowloader, delivers an absolutely fre
 [Download for Mac](https://tools.techidaily.com/macxdvd/products/) [Download for PC](https://tools.techidaily.com/macxdvd/products/) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Anime Websites to Download Anime MP4, HD Movies, Series, Episodes 
@@ -82,17 +90,21 @@ Apart from the above anime sites, there are more sites available to download ani
 
 Free anime downlaod sites
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Free Download Anime Episodes from Crunchyroll, YouTube, Veoh, Myvideo
 
 Watching anime movies online is acceptable as long as your network connection works well and no annoying ads bother you. Better than watch online anime series, I favor downloading anime movies for smooth offline enjoyment. If you have the same opinion with me, then Here I share with you the best all-in-one anime downloader I am using - [**MacX YouTube Downloader**](https://tools.techidaily.com/macxdvd/products/), which is ultra fast to free download any anime from Crunchyroll, Anime44, KissAnime, AnimePlusTV, SoulAnime, etc. (1000+ video sites supported) with whatever formats or solutions, including downloading English-dubbed anime MP4, FLV, AVI, MKV, 3GP videos, or downloading manga with 720P, 1080P, 4K UHD. And it can also assist you to extract the OST to MP3, AAC for playback on your iPhone, iPad Air 2/mini 4/Pro, Android or as ringtone or something alike.
 
 [Download for Mac](https://tools.techidaily.com/macxdvd/products/) [Download for PC](https://tools.techidaily.com/macxdvd/products/) 
 
-## How to Free Download Anime from YouTube and Convert to iPhone iPad? 
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## How to Free Download Anime from YouTube and Convert to iPhone iPad? 
 
 ### Step 1: Free Download Anime YouTube Downloader
 
@@ -110,10 +122,6 @@ download anime free with english sub
 
 download manga free from youtube
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 3: Select the Output Folder 
 
 Click "Browse" button to choose the path where you want to save the output files in.
@@ -123,6 +131,10 @@ Click "Browse" button to choose the path where you want to save the output files
 Hit the "Download Now" button and start manga free downloading and conversion on Mac OS X. All the tasks can be finished at world's NO.1 fast speed and original quality.
 
 Tips: Beyond downloading manga with English sub, you can get other movie videos in Spanish, German, French or Italian, and even xnxx videos and other adult videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## List of Best Anime Series & Movies of All Time Anime Fans Can't Miss
 
@@ -146,10 +158,6 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Free Download 3D 1080P HD Blu Ray Movies in Tamil, Telugu, Hindi, English](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
@@ -158,13 +166,13 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [List of the Best 4K Movies on Netflix to Watch and Download Freely](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [The Best Sites to Free Download HD/4K Hollywood Movies](https://tools.techidaily.com/macxdvd/products/) 
 
@@ -174,19 +182,15 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [\[Tutorial\] How to Free Download Hollywood Movies in 4k/HD](https://tools.techidaily.com/macxdvd/products/) 
 
 ![Digiarty Software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../icon/logo.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hot Products
 
@@ -201,10 +205,6 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Data Transfer >>](https://tools.techidaily.com/macxdvd/products/)
 * [Online Video >>](https://tools.techidaily.com/macxdvd/products/)
 * [Hot Topics >>](https://tools.techidaily.com/macxdvd/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Company
 
@@ -236,18 +236,24 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-best-of-the-best-10-leading-video-call-apps-for-iphones-and-android/"><u>[New] Best of the Best 10 Leading Video Call Apps for iPhones & Android</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-a-step-by-step-approach-for-thumbnail-creation-professionals-for-2024/"><u>[Updated] A Step-By-Step Approach for Thumbnail Creation Professionals for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-best-10-online-subtitle-editors/"><u>[Updated] In 2024, The Best 10 Online Subtitle Editors</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-fabletellers-fellowship-esteemed-ensemble/"><u>2024 Approved Fabletellers Fellowship – Esteemed Ensemble</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/acuerdo-de-uso-final-del-programa-winxdvd-por-parte-de-softwaria-digitales/"><u>Acuerdo De Uso Final Del Programa WinXDVD Por Parte De Softwaria Digitales</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/dvd-2024/"><u>DVDフォーマット入門：採用理由、作成手順、および解決策 - 2024年のガイド</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-repair-msstdfmtdll-absence-on-your-pc/"><u>How to Repair Msstdfmt.dll Absence on Your PC</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/latest-deals-get-exclusive-access-to-up-to-date-copyrighted-movie-and-sport-downloads-for-pc-and-mac/"><u>Latest Deals: Get Exclusive Access to Up-to-Date Copyrighted Movie & Sport Downloads for PC and Mac</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/os-10-melhores-conversores-de-dvd-para-mp4-escolha-a-perfeita-para-macos-e-windows-em-2023/"><u>Os 10 Melhores Conversores De DVD Para MP4: Escolha a Perfeita Para macOS E Windows Em 2023</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/speed-up-or-slow-down-top-10-free-video-editing-apps-for-mobile/"><u>Speed Up or Slow Down Top 10 Free Video Editing Apps for Mobile</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/step-by-step-guide-how-to-edit-and-remove-watershed-from-your-videos-on-tiktok/"><u>Step-by-Step Guide: How to Edit and Remove Watershed From Your Videos on TikTok</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-the-best-of-both-worlds-vn-video-editor-for-mac-and-its-alternatives-for-2024/"><u>Updated The Best of Both Worlds VN Video Editor for Mac and Its Alternatives for 2024</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/winxdvddigiarty/"><u>あなたのWinXDVD・Digiartyソフト質問への回答 - 連絡先情報公開</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-cut-video-for-instagram-on-mac/"><u>[New] In 2024, How To Cut Video For Instagram On Mac</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-secrets-unveiled-expert-adobe-captive-screen-recording-tips/"><u>[New] Secrets Unveiled Expert Adobe Captive Screen Recording Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-win11s-top-5-cost-free-applications-for-recording-screens/"><u>[Updated] 2024 Approved Win11's Top 5 Cost-Free Applications for Recording Screens</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-webcamskills-beginnersrecordingtutorial-for-2024/"><u>[Updated] WebcamSkills Beginner'sRecordingTutorial for 2024</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/1-advanced-macx-hd-multimedia-converter-suite-for-pc-professional-video-and-music-editing-tools/"><u>1. Advanced MacX HD Multimedia Converter Suite for PC - Professional Video & Music Editing Tools</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/choosing-between-innovation-and-reliability-iphone-15pro-max-versus-galaxy-s23-ultra/"><u>Choosing Between Innovation and Reliability: IPhone 1^5Pro Max versus Galaxy S23 Ultra</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/come-scaricare-e-guardare-film-in-dvd-utilizzando-il-cddvd-decrittore-gratuito/"><u>Come Scaricare E Guardare Film in DVD Utilizzando Il CD/DVD Decrittore Gratuito</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/deciphe-and-solve-car-ai-implementation-glitches-the-ultimate-guide/"><u>Deciphe & Solve Car AI Implementation Glitches: The Ultimate Guide</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/discover-the-most-innovative-phones-and-tablets-from-the-2e-mobile-world-conference-2016-your-definitive-selection-list/"><u>Discover the Most Innovative Phones & Tablets From the 2E-Mobile World Conference 2016 – Your Definitive Selection List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-samsung-galaxy-f04-device-sim-by-drfone-android/"><u>Easily Unlock Your Samsung Galaxy F04 Device SIM</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-laptop-charging-issues-when-it-shows-full-battery/"><u>How to Resolve Laptop Charging Issues When It Shows Full Battery</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-10-cool-features-that-make-you-love-filmora-video-editor/"><u>In 2024, 10 Cool Features That Make You Love Filmora Video Editor</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/introducing-the-groundbreaking-macx-hevc-converter-optimize-videos-for-iphoneipad-while-reducing-file-size-overheads/"><u>Introducing the Groundbreaking MacX HEVC Converter - Optimize Videos for iPhone/iPad While Reducing File Size Overheads!</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/mkv-to-vob-conversion-tips-for-macbookimac-users/"><u>MKV to VOB Conversion Tips for MacBook/iMac Users</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/new-release-macx-dvd-ripper-pro-version-46-with-enhanced-compatibility-for-macos-el-capitan/"><u>New Release: MacX DVD Ripper Pro Version 4.6 with Enhanced Compatibility for macOS El Capitan</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/top-rated-tools-for-effortlessly-changing-mp4-videos-into-the-open-ogg-format/"><u>Top Rated Tools for Effortlessly Changing MP4 Videos Into the Open Ogg Format</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/video-compilation-wizardry-turn-your-footage-into-one-iso-masterpiece/"><u>Video Compilation Wizardry: Turn Your Footage Into One ISO Masterpiece</u></a></li>
+<li><a href="https://techtrends.techidaily.com/watching-netflix-on-the-go-does-it-work-with-nintendo-switch/"><u>Watching Netflix on the Go – Does It Work with Nintendo Switch?</u></a></li>
 </ul></div>
 
