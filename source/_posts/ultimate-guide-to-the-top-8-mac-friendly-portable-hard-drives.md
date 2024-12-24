@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to the Top 8 Mac-Friendly Portable Hard Drives
-date: 2024-12-13T16:27:43.261Z
-updated: 2024-12-15T16:33:50.523Z
+date: 2024-12-23T07:06:26.211Z
+updated: 2024-12-24T07:14:58.287Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/7198dc888f65174fbf2046c2c24c70817b0458c73734644af430af59b81e9b9d.jpg
@@ -27,15 +27,11 @@ _You'd better always create a backup of your important Mac data on an external h
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-fa.jpg)](https://www.facebook.com/sharer/sharer.php?u=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-tw.jpg)](https://twitter.com/intent/tweet?url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-email.jpg)](https://www.macxdvd.com/mac-dvd-video-converter-how-to/mailto:info@example.com?&subject=&body=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in.jpg)](https://www.linkedin.com/shareArticle?mini=true&url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm&title=&summary=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm&source=)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  External hard drives for Mac are always great helpers for Mac data backup/restore/transfer. But external hard drives for Mac are a dime a dozen, making it a highly labor intensive process to pick out the best one. Here we selected out a list of best portable hard drive for MacBook Pro/Air/iMac, based on price, transfer speed, reliability, portability, durability and some other important criteria. Before you shell out money to buy a top Mac external drive, you might as well try a free method to turn your iDevices into USB flash drive to store data. 
@@ -43,13 +39,17 @@ _You'd better always create a backup of your important Mac data on an external h
 ![Best external hard drive for mac](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Best external hard drive for Mac
 
 * [Turn to iDevices to External USB Drives](https://tools.techidaily.com/macxdvd/products/) ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon4.png)
 * [Top Portable HDD for MacBook Air/Pro/iMac](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Free Turn to iPhone iPad iPod to External USB Drives for Mac
 
@@ -61,6 +61,10 @@ Yes, you can make full use of your existing iDevices, and mount them as portable
 
 Use iDevices as hard drive for Mac
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Mount iPhone iPad etc. as Portable Disc Drive for Mac
 
  **Step 1:** Launch the hard drive disc for Mac mounter after you [download the tool on Mac](https://tools.techidaily.com/macxdvd/products/), connect your iPhone to computer with USB cable then.
@@ -71,17 +75,9 @@ Use iDevices as hard drive for Mac
 
 The flash drive software supports to change both jailbroken and non-jailbroken iPhone iPad iPod to top external hard disk drive for Mac (macOS Big Sur incl.)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Top Portable HDD for MacBook Air/Pro/iMac
 
 ![best Mac HDD](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-fro-mac-2.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### LaCie Rugged Mini ($99.99/1TB) - Review: 4.5
 
@@ -95,23 +91,11 @@ The flash drive software supports to change both jailbroken and non-jailbroken i
 
 ![best external hard drive mac](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac-3.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Western Digital ($59/1TB) - Review: 4.5
 
  It's the best external hard drive to backup Mac compared with other items from WD. Speed is improved a lot in this model. Optional AES hardware encryption is offered by the best hard disk drive for Mac, you are free to block and unblock the drive and restore data for Mac. Four colors are available, black, blue, white and berry. The best Mac portable hard drive for is suitable for both Mac and PC. Also see [iPhone flash drive app](https://tools.techidaily.com/macxdvd/products/). 
 
 ![best external hard drive for mac](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac-4.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Seagate Backup Plus Slim ($59.99/1TB)- Review: 4.4
 
@@ -120,7 +104,7 @@ The extra 200GB of free OneDrive cloud storage make the best HDD for Mac more ap
 ![best external hard drive for MacBook](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac-5.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Transcend 1 TB StoreJet ($56.99/1TB) - Review: 4.4
@@ -137,6 +121,14 @@ Data encryption, auto backup and Cloud-enabled backup are all allowed by the top
 
 ![best portable hdd for Mac](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac-7.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### G-Technology G-DRIVE ($ 84.95/500GB) - Review: 4.8
 
  If you are looking for the best portable firewire external hard drive for Mac, this one is probably what you want. The G-Technology G-DRIVE 500GB top portable firewire hard drive for Mac is good for Mac data backup/recovery and video editing. Time Machine-ready, bus-powered operation and Firewire port are appreciated features. Note that this best-rated hard disk drive requires computer with OS X 10.5 or later and USB 3.0 or FireWire 800 port.
@@ -144,6 +136,10 @@ Data encryption, auto backup and Cloud-enabled backup are all allowed by the top
 Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 \[Gallery\] have Archeologists Finally Solved The Mystery of Atlantls? 
 
@@ -165,6 +161,10 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 \[Gallery\] have Archeologists Finally Solved The Mystery of Atlantls? 
 
 ![Digiarty Software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../icon/logo.png) 
@@ -178,7 +178,7 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Tips and Tricks
@@ -219,15 +219,17 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mp3-creation-from-instagram-vids-explained/"><u>[New] 2024 Approved MP3 Creation From Instagram Vids Explained</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ree-youtube-thumbnails-saving-guide/"><u>[New] Free YouTube Thumbnails Saving Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-mastering-aquatic-cinematography-with-these-7-essential-strategies-for-2024/"><u>[New] Mastering Aquatic Cinematography with These 7 Essential Strategies for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-demystify-the-screen-time-analyze-your-posts-viewership/"><u>[Updated] Demystify the Screen Time Analyze Your Post's Viewership</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-video-creation-the-complete-review-of-sj-cam-s6/"><u>2024 Approved Mastering Video Creation The Complete Review of SJ-CAM S6</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/diy-tutorial-transform-your-mp4-videos-into-a-professional-costless-dvd-with-ease/"><u>DIY Tutorial: Transform Your MP4 Videos Into A Professional, Costless DVD with Ease</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/how-to-convert-your-mpeg-4-videos-into-dvd-format-a-simple-4-step-guide/"><u>How To Convert Your MPEG-4 Videos Into DVD Format: A Simple 4 Step Guide</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/how-to-create-a-functional-dvd-from-your-mac-alternatives-to-itunes/"><u>How to Create a Functional DVD From Your Mac: Alternatives to iTunes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-your-gameplay-with-phillipss-ergonomic-49-curved-monitor-an-oled-marvel/"><u>Master Your Gameplay with Phillips's Ergonomic 49 Curved Monitor - An OLED Marvel</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/mastering-the-art-of-digital-archiving-burning-videos-onto-blank-discs-in-windows-11-8-or-7-platforms/"><u>Mastering the Art of Digital Archiving: Burning Videos Onto Blank Discs in Windows 11, 8 or 7 Platforms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-storytelling-in-cinema-from-idea-to-actuality/"><u>[New] 2024 Approved Storytelling in Cinema From Idea to Actuality</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95937555-9781844097623-animal-totems-and-the-gemstone-kingdom/"><u>Animal Totems and the Gemstone Kingdom | Free Book</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/fuhren-sie-ihre-dvds-umsonst-in-die-zukunft-ein-verwandeln-sie-hevch265-mp4-und-erhalten-sie-dabei-erstklassige-videoklarheit/"><u>Führen Sie Ihre DVDs Umsonst in Die Zukunft Ein: Verwandeln Sie HEVC/H.265 MP4 Und Erhalten Sie Dabei Erstklassige Videoklarheit.</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-detailed-procedures-for-elevating-youtube-clips-through-wm-maker/"><u>In 2024, Detailed Procedures for Elevating YouTube Clips Through WM Maker</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-nokia-c22-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Nokia C22 Device</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/quick-and-easy-guide-unlimited-conversion-of-mp4-to-wmv-format/"><u>Quick & Easy Guide: Unlimited Conversion of MP4 to WMV Format</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/resolving-the-issue-how-to-repair-an-xbox-one-with-error-code-0x91d70000/"><u>Resolving the Issue: How to Repair an Xbox One with Error Code 0X91D70000</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/superior-webm-format-converter-app-seamless-transformation-of-videos-in-and-out-of-webm/"><u>Superior WebM Format Converter App: Seamless Transformation of Videos In and Out of WebM</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/the-ultimate-list-of-safe-and-speedy-video-convertors-for-windows-10-and-11-enthusiasts/"><u>The Ultimate List of Safe & Speedy Video Convertors for Windows 10 & 11 Enthusiasts</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-samsung-galaxy-m34-5g-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/updating-your-systems-bios-a-solution-for-specific-hardware-issues/"><u>Updating Your System's BIOS: A Solution for Specific Hardware Issues?</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/winx-dvd-ripperdvd/"><u>WinX DVD Ripperのセキュリティについて学び、安全なDVDコピー手法を探求:ご利用者の皆様の信頼の証とします</u></a></li>
 </ul></div>
 
