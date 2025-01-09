@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to the Top 8 Mac-Friendly Portable Hard Drives
-date: 2024-12-23T07:06:26.211Z
-updated: 2024-12-24T07:14:58.287Z
+date: 2025-01-05T00:52:50.477Z
+updated: 2025-01-09T14:08:49.187Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/7198dc888f65174fbf2046c2c24c70817b0458c73734644af430af59b81e9b9d.jpg
@@ -24,6 +24,10 @@ _You'd better always create a backup of your important Mac data on an external h
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon6.png) By [Abby Poole](https://www.linkedin.com/in/abby-poole-6822b0104/) ｜Last updated on April 13 , 2021 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-fa.jpg)](https://www.facebook.com/sharer/sharer.php?u=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm)
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-tw.jpg)](https://twitter.com/intent/tweet?url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm)
 
@@ -31,16 +35,12 @@ _You'd better always create a backup of your important Mac data on an external h
 * [![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in.jpg)](https://www.linkedin.com/shareArticle?mini=true&url=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm&title=&summary=https://www.macxdvd.com/mac-dvd-video-converter-how-to/best-external-hard-drive-for-mac.htm&source=)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  External hard drives for Mac are always great helpers for Mac data backup/restore/transfer. But external hard drives for Mac are a dime a dozen, making it a highly labor intensive process to pick out the best one. Here we selected out a list of best portable hard drive for MacBook Pro/Air/iMac, based on price, transfer speed, reliability, portability, durability and some other important criteria. Before you shell out money to buy a top Mac external drive, you might as well try a free method to turn your iDevices into USB flash drive to store data. 
 
 ![Best external hard drive for mac](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Best external hard drive for Mac
 
@@ -48,7 +48,7 @@ Best external hard drive for Mac
 * [Top Portable HDD for MacBook Air/Pro/iMac](https://tools.techidaily.com/macxdvd/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Free Turn to iPhone iPad iPod to External USB Drives for Mac
@@ -61,10 +61,6 @@ Yes, you can make full use of your existing iDevices, and mount them as portable
 
 Use iDevices as hard drive for Mac
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Mount iPhone iPad etc. as Portable Disc Drive for Mac
 
  **Step 1:** Launch the hard drive disc for Mac mounter after you [download the tool on Mac](https://tools.techidaily.com/macxdvd/products/), connect your iPhone to computer with USB cable then.
@@ -74,6 +70,10 @@ Use iDevices as hard drive for Mac
  **Step 3:** Click "Add" button to add files, documents, videos, photos etc. from computer to iPhone iPad etc. or simply drag the wanted files folder to the interface as it shows below. 
 
 The flash drive software supports to change both jailbroken and non-jailbroken iPhone iPad iPod to top external hard disk drive for Mac (macOS Big Sur incl.)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Top Portable HDD for MacBook Air/Pro/iMac
 
@@ -91,6 +91,10 @@ The flash drive software supports to change both jailbroken and non-jailbroken i
 
 ![best external hard drive mac](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac-3.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Western Digital ($59/1TB) - Review: 4.5
 
  It's the best external hard drive to backup Mac compared with other items from WD. Speed is improved a lot in this model. Optional AES hardware encryption is offered by the best hard disk drive for Mac, you are free to block and unblock the drive and restore data for Mac. Four colors are available, black, blue, white and berry. The best Mac portable hard drive for is suitable for both Mac and PC. Also see [iPhone flash drive app](https://tools.techidaily.com/macxdvd/products/). 
@@ -104,7 +108,11 @@ The extra 200GB of free OneDrive cloud storage make the best HDD for Mac more ap
 ![best external hard drive for MacBook](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac-5.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Transcend 1 TB StoreJet ($56.99/1TB) - Review: 4.4
@@ -122,11 +130,7 @@ Data encryption, auto backup and Cloud-enabled backup are all allowed by the top
 ![best portable hdd for Mac](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/best-hdd-for-mac-7.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### G-Technology G-DRIVE ($ 84.95/500GB) - Review: 4.8
@@ -136,10 +140,6 @@ Data encryption, auto backup and Cloud-enabled backup are all allowed by the top
 Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 \[Gallery\] have Archeologists Finally Solved The Mystery of Atlantls? 
 
@@ -157,13 +157,13 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 \[Gallery\] have Archeologists Finally Solved The Mystery of Atlantls? 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 \[Gallery\] have Archeologists Finally Solved The Mystery of Atlantls? 
 
@@ -177,10 +177,6 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tips and Tricks
 
 * [DVD Topics >>](https://tools.techidaily.com/macxdvd/products/)
@@ -188,6 +184,10 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Data Transfer >>](https://tools.techidaily.com/macxdvd/products/)
 * [Online Video >>](https://tools.techidaily.com/macxdvd/products/)
 * [Hot Topics >>](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Company
 
@@ -219,17 +219,18 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-storytelling-in-cinema-from-idea-to-actuality/"><u>[New] 2024 Approved Storytelling in Cinema From Idea to Actuality</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95937555-9781844097623-animal-totems-and-the-gemstone-kingdom/"><u>Animal Totems and the Gemstone Kingdom | Free Book</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/fuhren-sie-ihre-dvds-umsonst-in-die-zukunft-ein-verwandeln-sie-hevch265-mp4-und-erhalten-sie-dabei-erstklassige-videoklarheit/"><u>Führen Sie Ihre DVDs Umsonst in Die Zukunft Ein: Verwandeln Sie HEVC/H.265 MP4 Und Erhalten Sie Dabei Erstklassige Videoklarheit.</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-detailed-procedures-for-elevating-youtube-clips-through-wm-maker/"><u>In 2024, Detailed Procedures for Elevating YouTube Clips Through WM Maker</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-nokia-c22-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Nokia C22 Device</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/quick-and-easy-guide-unlimited-conversion-of-mp4-to-wmv-format/"><u>Quick & Easy Guide: Unlimited Conversion of MP4 to WMV Format</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/resolving-the-issue-how-to-repair-an-xbox-one-with-error-code-0x91d70000/"><u>Resolving the Issue: How to Repair an Xbox One with Error Code 0X91D70000</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/superior-webm-format-converter-app-seamless-transformation-of-videos-in-and-out-of-webm/"><u>Superior WebM Format Converter App: Seamless Transformation of Videos In and Out of WebM</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/the-ultimate-list-of-safe-and-speedy-video-convertors-for-windows-10-and-11-enthusiasts/"><u>The Ultimate List of Safe & Speedy Video Convertors for Windows 10 & 11 Enthusiasts</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-samsung-galaxy-m34-5g-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Samsung Galaxy M34 5G</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/updating-your-systems-bios-a-solution-for-specific-hardware-issues/"><u>Updating Your System's BIOS: A Solution for Specific Hardware Issues?</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/winx-dvd-ripperdvd/"><u>WinX DVD Ripperのセキュリティについて学び、安全なDVDコピー手法を探求:ご利用者の皆様の信頼の証とします</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-record-television-shows-on-pc-free-software-insights/"><u>[Updated] How to Record Television Shows on PC Free Software Insights</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-mastering-digital-creation-complete-guide-to-picsart/"><u>2024 Approved Mastering Digital Creation Complete Guide to PicsArt</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/achieve-superior-visual-experience-transforming-your-videos-into-premium-quality-dvd-format/"><u>Achieve Superior Visual Experience: Transforming Your Videos Into Premium Quality DVD Format</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/guida-esclusiva-come-risolvere-e-prevenire-la-sincronizzazione-problematica-nel-tuo-outlook-365/"><u>Guida Esclusiva: Come Risolvere E Prevenire La Sincronizzazione Problematica Nel Tuo Outlook 365</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-sony-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Sony Devices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-infinix-hot-30-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Infinix Hot 30 5G Devices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-tecno-camon-20-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Tecno Camon 20</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-unlock-fcpx-efficiency-40-must-know-keyboard-shortcuts/"><u>New In 2024, Unlock FCPX Efficiency 40 Must-Know Keyboard Shortcuts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/personal-vlogs-that-resonate-deeply-with-viewers/"><u>Personal Vlogs That Resonate Deeply With Viewers</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/simple-and-effective-techniques-for-transforming-mp4-files-into-dvds-complete-video-tutorial-included/"><u>Simple & Effective Techniques for Transforming MP4 Files Into DVDs - Complete Video Tutorial Included!</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/step-by-step-guide-burning-your-wmv-files-into-a-dvd-using-the-top-dmv-converter-software/"><u>Step-by-Step Guide: Burning Your WMV Files Into a DVD Using the Top DMV Converter Software</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/the-ultimate-guide-to-top-rated-free-cd-writing-programs-ranked-1-to-7/"><u>The Ultimate Guide to Top-Rated Free CD Writing Programs: Ranked #1 to #7</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/ultimate-guide-converting-videos-into-hd-dvds-step-by-step-tutorial/"><u>Ultimate Guide: Converting Videos Into HD DVDs - Step-by-Step Tutorial</u></a></li>
 </ul></div>
 
